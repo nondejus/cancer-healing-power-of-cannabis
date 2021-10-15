@@ -1,2 +1,3 @@
-# cancer-healing-power-of-cann-bis
+# cancer-healing-power-of-cannabis
+
 vs the destruction power of alcohol
